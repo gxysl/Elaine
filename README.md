@@ -1,2 +1,2 @@
 # Elaine
-My wife's English name
+English name
